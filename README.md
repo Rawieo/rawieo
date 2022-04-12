@@ -7,3 +7,5 @@ meta at all costs
 
 unacceptably serene
 remorselessly esoteric
+embarrassingly optimistic
+affectionately subversive
